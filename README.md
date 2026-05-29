@@ -1,1 +1,1 @@
-# projetos-tecnologia-informacao-comunicacao
+# Esses projetos tem objetivo totalmente acadêmico
